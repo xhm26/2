@@ -37,7 +37,7 @@
 半糖改名七彩直播了，苹果手机小红帽和七彩只能装一个  
 <img src="https://github.com/xhm26/2/blob/main/108.jpg" />  
 全网最性感可人的网红美女大咖在这里大尺度直播等你来撩，  
-下载地址可复制到游览器打开：[https://qc.app.djppers.com](https://qc.app.djppers.com/?parent_icode=1038962374)  
+下载地址可复制到游览器打开：[https://fx.ggxfzptapp.com](https://fx.ggxfzptapp.com/?parent_icode=1282268748)  
 ## JP直播（极品直播）  
 极品直播的质量也可以，就是广告多点  
 <img src="https://github.com/cc10240/1/blob/main/109.jpg" />  
