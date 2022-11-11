@@ -18,7 +18,7 @@
 [https://xhm21.app](https://xhm21.app/22754268)  
 [https://xhm22.app](https://xhm22.app/95175542)  
 [https://xhm11.app](https://xhm11.app/4209823)   
-免费、无破解版下载链接（2022年11月08日更新）   
+免费、无破解版下载链接（2022年11月11日更新）   
 [https://xhm21.app](https://xhm21.app/95175542)  
 [https://xhm22.app](https://xhm22.app/22754268)  
 [https://xhm11.app](https://xhm11.app/4209823)  
@@ -45,6 +45,6 @@
 ## 其他  
 梯子机场V/P/N地址：[https://tly.sh](https://tly.sh/2049539) 这个不限制设备数，找几个人合租最划算  
 ## 回家页
-小红帽回家页：https://github.com/8XHM8/1  
+小红帽回家页：https://github.com/XHM-2/app  
 梯子的回家页：https://www.ebay.com/usr/tlyvpn  
 91的地址：https://www.ebay.com/usr/91home  
