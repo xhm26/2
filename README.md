@@ -15,6 +15,7 @@
 （正常下载：点击右上角“下载app”即可弹出下载窗口，不需进入评分页面下载）  
 手机复制粘贴到浏览器打开，别WX直接打开  
 或点击下面链接进入小狐狸下载页：  
+[https://ii1y.app](https://download.w2c2.app/22754268)  
 [https://ii1y.app](https://ii1y.app/22754268)  
 [https://h7m7.app](https://h7m7.app/95175542)  
 [https://w2c2.app](https://w2c2.app/4209823)   
