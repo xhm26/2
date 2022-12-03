@@ -14,15 +14,14 @@
 若禁止访问或下载出问题，建议更换手机浏览器再次尝试（建议chrome、edge、via手机浏览器）  
 （正常下载：点击右上角“下载app”即可弹出下载窗口，不需进入评分页面下载）  
 手机复制粘贴到浏览器打开，别WX直接打开  
-或点击下面链接进入小狐狸下载页：  
-[https://ii1y.app](https://download.w2c2.app/22754268)  
-[https://ii1y.app](https://ii1y.app/22754268)  
-[https://h7m7.app](https://h7m7.app/95175542)  
-[https://w2c2.app](https://w2c2.app/4209823)   
-免费、无破解版下载链接（2022年11月29日更新）   
-[https://ii1y.app](https://ii1y.app/22754268)  
-[https://h7m7.app](https://h7m7.app/95175542)  
-[https://w2c2.app](https://w2c2.app/4209823)   
+或点击下面链接进入小狐狸下载页：   
+[https://k99f.app](https://k99f.app/22754268)  
+[https://h5e2.app](https://h5e2.app/95175542)  
+[https://m0f3.app](https://m0f3.app/4209823)   
+免费、无破解版下载链接（2022年12月03日更新）   
+[https://k99f.app](https://k99f.app/22754268)  
+[https://h5e2.app](https://h5e2.app/95175542)  
+[https://m0f3.app](https://m0f3.app/4209823)   
 
 >最近打开网址 出现红底白字！欺骗性警告，点击显示详细信息，再点击访问此不安全的网站即可。  
 >>安卓手机出现限制安装解决办法:  
