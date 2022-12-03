@@ -45,6 +45,6 @@
 ## 其他  
 梯子机场V/P/N地址：[https://tly.sh](https://tly.sh/2049539) 这个不限制设备数，找几个人合租最划算  
 ## 回家页
-小红帽回家页：https://github.com/XHM-2/app  
+小红帽回家页：https://github.com/XHM6/1  
 梯子的回家页：https://www.ebay.com/usr/tlyvpn  
 91的地址：https://www.ebay.com/usr/91home  
