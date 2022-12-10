@@ -15,13 +15,13 @@
 （正常下载：点击右上角“下载app”即可弹出下载窗口，不需进入评分页面下载）  
 手机复制粘贴到浏览器打开，别WX直接打开  
 或点击下面链接进入小狐狸下载页：   
-[https://d2q4.app](https://d2q4.app/4209823)  
-[https://9s9o.app](https://9s9o.app/95175542)  
-[https://6t4h.app](https://6t4h.app/22754268)   
+[https://d2q4.app](https://d2q4.app/51251494)  
+[https://9s9o.app](https://9s9o.app/51251494)  
+[https://6t4h.app](https://6t4h.app/51251494)   
 免费、无破解版下载链接（2022年12月10日更新）   
-[https://d2q4.app](https://d2q4.app/4209823)  
-[https://9s9o.app](https://9s9o.app/95175542)  
-[https://6t4h.app](https://6t4h.app/22754268)   
+[https://d2q4.app](https://d2q4.app/51251494)  
+[https://9s9o.app](https://9s9o.app/51251494)  
+[https://6t4h.app](https://6t4h.app/51251494)   
 
 >最近打开网址 出现红底白字！欺骗性警告，点击显示详细信息，再点击访问此不安全的网站即可。  
 >>安卓手机出现限制安装解决办法:  
