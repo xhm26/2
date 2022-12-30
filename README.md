@@ -1,6 +1,6 @@
 ## 前言
-我WX：tiger13140122  
-好友验证（通过秘钥）写：xrytqp  
+我WX：无  
+好友验证（通过秘钥）写：无  
 秘钥**错误**不加，只加好友，不私聊！！！  
 **入群通道：加我时,看WX个性签名或我通过后，看我朋友圈介绍，头像下面。号被封了，为了安全。**   
 不定期开放，多刷刷网页        
@@ -14,13 +14,13 @@
 白嫖法：去各自营业厅蹭他们的专网去试。  
 
 或点击下面链接进入小狐狸下载页：   
-[https://h8t8.app](https://h8t8.app/51251494)  
-[https://4h9r.app](https://4h9r.app/51251494)  
-[https://3l9b.app](https://3l9b.app/51251494)   
-免费、无破解版下载链接（2022年12月27日更新）   
-[https://h8t8.app](https://h8t8.app/51251494)  
-[https://4h9r.app](https://4h9r.app/51251494)  
-[https://3l9b.app](https://3l9b.app/51251494)   
+[https://9j3d.app](https://9j3d.app/51251494)  
+[https://5b3b.app](https://5b3b.app/51251494)  
+[https://4v0c.app](https://4v0c.app/51251494)   
+免费、无破解版下载链接（2022年12月30日更新）   
+[https://9j3d.app](https://9j3d.app/51251494)  
+[https://5b3b.app](https://5b3b.app/51251494)  
+[https://4v0c.app](https://4v0c.app/51251494)   
 
 
 
