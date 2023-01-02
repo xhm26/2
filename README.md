@@ -14,13 +14,13 @@
 白嫖法：去各自营业厅蹭他们的专网去试。  
 
 或点击下面链接进入小狐狸下载页：   
-[https://9j3d.app](https://9j3d.app/51251494)  
-[https://5b3b.app](https://5b3b.app/51251494)  
-[https://4v0c.app](https://4v0c.app/51251494)   
-免费、无破解版下载链接（2022年12月30日更新）   
-[https://9j3d.app](https://9j3d.app/51251494)  
-[https://5b3b.app](https://5b3b.app/51251494)  
-[https://4v0c.app](https://4v0c.app/51251494)   
+[https://x9c5.app](https://x9c5.app/51251494)  
+[https://s8v1.app](https://s8v1.app/51251494)  
+[https://g4b8.app](https://g4b8.app/51251494)   
+免费、无破解版下载链接（2023年01月02日更新）   
+[https://x9c5.app](https://x9c5.app/51251494)  
+[https://s8v1.app](https://s8v1.app/51251494)  
+[https://g4b8.app](https://g4b8.app/51251494)   
 
 
 
@@ -34,7 +34,7 @@
 <img src="https://github.com/cc10240/1/blob/main/109.jpg" />  
 下载地址可复制到游览器打开：[https://jingpin.info](https://jingpin.info/?channelCode=2098949)    
 ## 其他  
-梯子机场V/P/N地址：[https://tly.sh](https://tly.sh/2049539) 这个不限制设备数，找几个人合租最划算  
+梯子机场V/P/N地址：[https://tly.sh](https://tly.sh/2049539)   
 ## 回家页
 小红帽回家页：https://github.com/XHM6/1  
 梯子的回家页：https://www.ebay.com/usr/tlyvpn  
