@@ -14,13 +14,13 @@
 白嫖法：去各自营业厅蹭他们的专网去试。  
 
 或点击下面链接进入小狐狸下载页：   
-[https://x9c5.app](https://x9c5.app/51251494)  
-[https://s8v1.app](https://s8v1.app/51251494)  
-[https://g4b8.app](https://g4b8.app/51251494)   
+[https://k99f.app](https://k99f.app/51251494)  
+[https://r9k8.app](https://r9k8.app/51251494)  
+[https://e3k6.app](https://e3k6.app/51251494)   
 免费、无破解版下载链接（2023年01月02日更新）   
-[https://x9c5.app](https://x9c5.app/51251494)  
-[https://s8v1.app](https://s8v1.app/51251494)  
-[https://g4b8.app](https://g4b8.app/51251494)   
+[https://k99f.app](https://k99f.app/51251494)  
+[https://r9k8.app](https://r9k8.app/51251494)  
+[https://e3k6.app](https://e3k6.app/51251494)   
 
 
 
